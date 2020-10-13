@@ -1,1 +1,1 @@
-My favorite lake is: Lake Wingra
+My favorite lake is: Lake Monona
