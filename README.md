@@ -1,1 +1,1 @@
-My favorite lake is: Lake Erie 
+My favorite lake is: Lake Mendota 
